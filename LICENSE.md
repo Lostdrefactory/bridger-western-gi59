@@ -1,4 +1,4 @@
-#  
+#  bridger western exclusive Scripts is the best bridger western Script, featuring auto-heal and silent aim. Safe and powerful for all your needs.
 
 
 
